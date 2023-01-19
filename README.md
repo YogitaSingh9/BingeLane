@@ -5,7 +5,7 @@
  
  ![image](https://user-images.githubusercontent.com/115174566/213398058-07d95504-43d6-463a-add6-4d6b8f4588a3.png)
 
-All the five gener
+All the five genre
 
 ![image](https://user-images.githubusercontent.com/115174566/213398295-d23b06d9-7b1a-41b7-970a-90d4faf64a69.png)
 
